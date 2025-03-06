@@ -96,4 +96,4 @@ Se tiver dúvidas ou sugestões, sinta-se à vontade para entrar em contato:
 
 ---
 
-Se precisar de ajuda para adicionar algo ou ajustar o conteúdo, é só falar! 😊
+
